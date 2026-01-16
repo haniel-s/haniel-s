@@ -10,4 +10,4 @@ A few things I have worked on / am currently working on :
 
 and a few other project that i haven't got the permission to showcase 😊
 
-I've pinned other things that I've worked on so be sure to check them out !
+I’ve pinned some of my projects below, welcome to my project vault!
